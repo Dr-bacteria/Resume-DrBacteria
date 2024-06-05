@@ -1,5 +1,5 @@
 
-![Uploading Untitled-10-Recovered.jpg…]()
+<img src="https://s8.uupload.ir/files/untitled-10-recovered_teta.jpg" alt="">
 
 # وبسایت رزومه دکتر باکتری ! 
 
