@@ -1,5 +1,4 @@
-
-<img src="https://s8.uupload.ir/files/untitled-10-recovered_teta.jpg" alt="">
+![Resume Dr Bacteria](https://s8.uupload.ir/files/untitled-10-recovered_teta.jpg)
 
 # وبسایت رزومه دکتر باکتری ! 
 
